@@ -1,3 +1,3 @@
 # turtlecoin
 
-SOMETHING BIG IS COMING SOON
+Rip turtlecoin, welcome TurskaCoin!
